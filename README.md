@@ -24,4 +24,4 @@
 ![Untitled design (2)](https://github.com/dhyeyr/galaxy_planet/assets/143472343/13e95ad0-aae2-4339-98a0-4948013d786a)
 
 # Screen Recoding :
-https://drive.google.com/file/d/1eG2CLYuwnVn2EHXmYBPK19bIKEfrtbYL/view?usp=drive_link
+https://drive.google.com/file/d/1dlWrZXjNNJILINEQzJ7Q1CeA-Y-TRha9/view?usp=drive_link
